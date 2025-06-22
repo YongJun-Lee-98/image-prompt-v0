@@ -1,0 +1,3 @@
+```
+"A silver-haired yong woman standing in a flower-filled garden, gently holding a bouquet. The light source is behind her, casting a warm backlight and subtle glow around her silhouette. Her expression is on the verge of tears, yet her lips form a faint, forced smile. The overall mood is warm and nostalgic, with a deep sense of lingering sorrow in the air. The composition captures a soft, cinematic atmosphere, evoking a bittersweet farewell. Shallow depth of field, soft lighting, emotional expression, highly detailed."
+```
